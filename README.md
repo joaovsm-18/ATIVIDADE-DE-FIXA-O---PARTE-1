@@ -1,0 +1,2 @@
+# ATIVIDADE-DE-FIXA-O---PARTE-1
+Possui 22 Exercícios - VISUALG 
